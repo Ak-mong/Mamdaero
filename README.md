@@ -16,6 +16,13 @@
 
 ---
 
+## 📽️  UCC
+
+https://youtu.be/AVY71iJWuYA
+
+---
+
+
 # ❤️  팀원 소개
 
 ![팀원소개](https://github.com/user-attachments/assets/0ce71a2e-a5b5-4bfa-8a68-cdc837325f3e)
